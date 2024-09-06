@@ -24,8 +24,7 @@
 - Filming and editing nature videos 🌸
 
 📫 **Reach Me:**
-- Email: [your-email@example.com]
-- LinkedIn: [Your LinkedIn Profile](www.linkedin.com/in/mubashir-abbas-sial-6383492b5
-)
+- Email: mubashirabbasedu12@gmail.com
+- LinkedIn: www.linkedin.com/in/mubashir-abbas-sial-6383492b5
 
 🌍 From: Pakistan
