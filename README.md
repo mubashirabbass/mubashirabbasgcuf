@@ -25,6 +25,6 @@
 
 📫 **Reach Me:**
 - Email: mubashirabbasedu12@gmail.com
-- LinkedIn: www.linkedin.com/in/mubashir-abbas-sial-6383492b5
+- LinkedIn: https://www.linkedin.com/in/mubashir-abbas-089aa9372/
 
 🌍 From: Pakistan
